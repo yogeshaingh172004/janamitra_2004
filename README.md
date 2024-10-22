@@ -1,1 +1,0 @@
-# janamitra_2004
